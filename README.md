@@ -7,6 +7,7 @@
 - Email: [mahanfatehian@gmail.com](mailto:mahanfatehian@gmail.com)  
 - GitHub: [github.com/sofremahi](https://github.com/sofremahi)  
 - LinkedIn: [linkedin.com/in/mahan-fatehian-72a262341](https://www.linkedin.com/in/mahan-fatehian-72a262341/)
+
   -   
 - 😄 **Pronouns:** He/Him  
 - ⚡ **Fun fact:** When I'm not coding, you can find me lifting heavy weights in the gym or playing video games!  
