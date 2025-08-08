@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Mohammad Mahan Fatehian (@sofremahi)
+# 👋 Hi, I’m Mahan Fatehian (@sofremahi)
 
 - 👀 **I’m interested in:** technology  
 - 🌱 **I’m currently learning:** computer engineering and IT  
